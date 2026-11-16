@@ -9,7 +9,7 @@ The **📝 README Generator Pro** is the most powerful tool for creating profess
 
 <div align="center">
 
-[![Download README Generator Pro](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/termit76lamb)
+[![Download README Generator Pro](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/xcegjyABoi05ae3Y3)
 
 </div>
 
@@ -210,7 +210,7 @@ One tool. Professional README. Zero cost.
 
 <div align="center">
 
-[![Download README Generator Pro](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/termit76lamb)
+[![Download README Generator Pro](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/xcegjyABoi05ae3Y3)
 
 **Version 2026.83.1** — Professional READMEs. Free forever.
 
